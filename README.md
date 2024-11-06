@@ -1,2 +1,0 @@
-# Haukhaik.github.io
-Percobaan 
